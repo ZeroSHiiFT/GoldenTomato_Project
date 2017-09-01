@@ -1,3 +1,2 @@
 # GoldenTomato_Project
-HELLO WORLD
-ASdpoJAFOHIBEgku
+Im gay
